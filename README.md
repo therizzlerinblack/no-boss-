@@ -9,7 +9,3 @@ this is a small fun game if you don't want to do the test it's still fun but sad
 by the way we have a website that is not banned it's called slack jhere is the join code 
 
 https://join.slack.com/t/antiibossnobo-2cw2368/shared_invite/zt-336mx0ppc-7FkrfymDrRkjYq7q0fRocw
-
-file dowlad link
-
-https://drive.google.com/file/d/1CnWEpsw3jq_uF3AIqh0Y-G9hjP9ZXWg4/view?usp=drive_link
