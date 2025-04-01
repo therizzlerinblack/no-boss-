@@ -5,3 +5,7 @@ you can contribute by also joining us and helping us code you can send recommend
 https://jblaha.art/sketchbook/0.4/
 
 this is a small fun game if you don't want to do the test it's still fun but sadly dicontunued
+
+by the way we have a website that is not banned it's called slack jhere is the join code 
+
+https://join.slack.com/t/antiibossnobo-2cw2368/shared_invite/zt-336mx0ppc-7FkrfymDrRkjYq7q0fRocw
