@@ -6,6 +6,6 @@ https://jblaha.art/sketchbook/0.4/
 
 this is a small fun game if you don't want to do the test it's still fun but sadly dicontunued
 
-by the way we have a fake dicord that is not banned it's called slack here is the join code 
+by the way we have a fake discord that is not banned it's called slack here is the join code 
 
 https://join.slack.com/t/antiibossnobo-2cw2368/shared_invite/zt-336mx0ppc-7FkrfymDrRkjYq7q0fRocw
